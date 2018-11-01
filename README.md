@@ -1,0 +1,2 @@
+# ehemkuy
+Tulisan doang
